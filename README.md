@@ -1,4 +1,3 @@
-## Hi there 👋
 
 ![image alt](https://github.com/anthyhimemiyas/anthyhimemiyas/blob/main/443e6998fe833e956ccc2f07b8b508cf.jpg?raw=true)
 <!--
